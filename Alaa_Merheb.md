@@ -8,7 +8,7 @@ Al-Kobbeh, Matar Bd
 
 **(+961) 70 342 417**
 
-[**merhebalaa68@gmail.com**](mailto:merhebalaa68@gmail.com)
+[**alaamerhebb@gmail.com.com**](mailto:merhebalaa68@gmail.com)
 
 **30/07/1999**
 
@@ -104,3 +104,8 @@ Advises customers in choosing desired outfits.
 
 Assisted customers in processing payments and discounts.
 
+**education**
+
+**2020-** Candidate for bachelor in Physical Education, University of Tripoli
+
+**2017-** Lebanese General Secondary Certificate, Official High School of Kobbeh.
